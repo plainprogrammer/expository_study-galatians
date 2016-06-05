@@ -20,6 +20,6 @@ The Expository Bible Study: Galatians is licensed under a [Creative Commons Attr
      7. Galatians 4:8-31
      8. Galatians 5:1-15
      9. Galatians 5:16-26
-    10. Galatians 6:1-10
-    11. Galatians 6:11-18
+     10. Galatians 6:1-10
+     11. Galatians 6:11-18
 * Leader Resources
