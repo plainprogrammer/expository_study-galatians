@@ -39,6 +39,6 @@ This verse also includes a statement that, given the likely early date for the w
 
 ---
 
-<b id="f1">1</b> Timothy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 46ff. [↩](#a1)
-<b id="f2">2</b> Ibid, 56ff. [↩](#a2)
-<b id="f3">3</b> The term _orthodox_ describes those teachings which are true and correct. The word means "right teaching" and is a common shorthand for describing essential truths that can not be rejected without rejecting true Christian faith. [↩](#a3)
+1. <b id="f1"></b> Timothy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 46ff. [↩](#a1)
+2. <b id="f2"></b> Ibid, 56ff. [↩](#a2)
+3. <b id="f3"></b> The term _orthodox_ describes those teachings which are true and correct. The word means "right teaching" and is a common shorthand for describing essential truths that can not be rejected without rejecting true Christian faith. [↩](#a3)
