@@ -2,12 +2,12 @@
 
 The Expository Bible Study is a series of Bible studies focused on exposing the depth of what the Bible teaches. It is organized as a book-by-book study with a few key principles and characteristics that distinguish it from other published Bible study curriculum:
 
-* Jesus is the Lord and ultimate object of all of Scripture.
+* Jesus is the Lord and ultimate object of all of Scripture
 * Studying the Bible should encourage both evangelism and discipleship
 * Bible studies should be usable in numerous settings 
 * Rigid periodic structures encourage compromise in the depth of study
 
-Each of this facets of the study are explained more below.
+Each of these facets of the study are explained more below.
 
 ## Jesus in All of Scripture
 
