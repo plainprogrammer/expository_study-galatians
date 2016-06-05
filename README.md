@@ -23,3 +23,4 @@ The Expository Bible Study: Galatians is licensed under a [Creative Commons Attr
      10. Galatians 6:1-10
      11. Galatians 6:11-18
 * [Leader Resources](leader-resources.md)
+* [Contributors](CONTRIBUTORS.md)
