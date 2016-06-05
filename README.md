@@ -12,8 +12,8 @@ The Expository Bible Study: Galatians is licensed under a [Creative Commons Attr
 * [License](LICENSE.md)
 * Lessons
      1. [Introduction & Galatians 1:1-5](lessons/lesson_1.md)
-     2. Galatians 1:6-10
-     3. Galatians 1:11-24
+     2. Galatians 1:6-9
+     3. Galatians 1:10-24
      4. Galatians 2
      5. Galatians 3:1-25
      6. Galatians 3:26-4:7
