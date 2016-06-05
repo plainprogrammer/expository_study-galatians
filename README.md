@@ -2,7 +2,7 @@
 
 [![Creative Commons License](https://i.creativecommons.org/l/by-sa/4.0/80x15.png)](LICENSE.md)
 
-The Expository Bible Study: Galatians is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](LICENSE.md).
+_The Expository Bible Study: Galatians_ is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](LICENSE.md).
 
 ---
 
