@@ -100,6 +100,12 @@ At the heart of the Gospel are these essential truths. And to add to or take awa
 
 ---
 
+### Share Together
+
+Take some time to share testimonies of how the Gospel has transformed those in your group.
+
+---
+
 ### For Next Time
 
 1. Read [Galatians 1:10-17](http://www.esvbible.org/Galatians%201%3A6-9/)
