@@ -33,7 +33,7 @@ In some ways these two verses reiterate what we discussed last session in terms 
 
 ### Consider Briefly
 
-1. Read Acts 21:26
+1. Read Acts 1:21-26
 2. What were the qualifications that Peter outlined for Apostleship?
 3. What was the primary reason for the raising of a new Apostle?
 4. Read Acts 9:1-22
