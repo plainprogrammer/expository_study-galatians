@@ -2,7 +2,7 @@
 
 Last session we focussed on the singular nature of the Gospel. Paul made it clear that there is no room for altering the Gospel, either by addition or subtraction from the essential message. Paul also made it clear that anyone who tampers with the Gospel is subject to God's wrath. This helps us understand the seriousness of Paul's letter to the Galatians and why we ought to be on guard against those temptations that can come to us to distort the Gospel, even with the best of intentions.
 
-This session, along three that follow will examine aspects of Paul's call to Apostolic ministry and the particular ministry to the Gentiles that He was given. As we consider Paul's calling and ministry, let us think about how each believer is also called to ministry as well.
+This session, along with the three that follow will examine aspects of Paul's call to Apostolic ministry and the particular ministry to the Gentiles that He was given. As we consider Paul's calling and ministry, let us think about how each believer is also called to ministry as well.
 
 ## Who's Approval Matters?
 
