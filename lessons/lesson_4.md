@@ -80,7 +80,7 @@ The churches were hearing about the ministry of Paul and they were glorifying Go
 
 God is glorified in calling sinners to Himself and then using them to advance His kingdom. We sometimes fail to give glory to God adequately when He does these things. Sometimes we get hung up on matters that should give us real concern: such as those who are evangelized but not connected with a local church for the work of discipleship. But, sometimes we fail to give glory to God for truly petty reasons that arise out of the reality that we're still struggling against our old natures.
 
-...
+We ought to look for opportunities to glorify God for what He is doing, and we know that He is always moving in His church. And, more that that, we should endeavor to live in such a way that other believers will give glory to God because of what they hear about the way God is moving in and through us.
 
 ---
 
