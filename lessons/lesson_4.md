@@ -75,6 +75,7 @@ The churches were hearing about the ministry of Paul and they were glorifying Go
 
 1. How do you respond when you hear about other believers being faithful to the Gospel? Is it always and consistently positive?
 2. What keeps you from glorifying God when you hear about the faithful ministry of others?
+3. In what ways can and should we glorify God when we hear about or see Him moving in His church?
 
 ---
 
