@@ -70,13 +70,17 @@ Yet, Paul notes the reason that he resisted their false teachings. It was for th
 > 
 > (Galatians 2:6-9 ESV)
 
-...
+Here we see the unity that emerged from Paul going to Jerusalem and meeting with the leaders of the church. Paul notes that he did not have any special regard for these leaders, but that they added nothing to his teaching or ministry. The way Paul speaks of these leaders, who we learn in verse nine are James, Peter and John, may sound flippant or even disrespectful. But, this can't be the correct reading of the passage since such disrespect would undercut the very point that Paul is trying to make with regards to the fact that he and the other Apostles we on the same team.<sup id="a1">[1](#f1)</sup>
+
+In the end both Paul and the other Apostles recognized their respective ministries to both Jews and Gentiles. This unity emerged despite their distinct callings and the difficulties raised by false teachers.
 
 ---
 
 ### Consider Briefly
 
-1. ...
+1. Read 1 Corinthians 12:14-20
+2. How do we sometimes forget that not all of us are called to serve in the same way?
+3. How can we do better at recognizing and honoring the varieties of gifts and callings in the church? 
 
 ---
 
@@ -102,3 +106,7 @@ Yet, Paul notes the reason that he resisted their false teachings. It was for th
 
 1. Read Galatians 2:11-16
 2. ...
+
+---
+
+1. <b id="f1"></b> Timothy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 155. [↩](#a1)
