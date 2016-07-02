@@ -17,17 +17,29 @@
 > 
 > (Galatians 2:1-2 ESV)
 
-...
+As Paul continued his ministry he did not isolate himself and seek to pursue his own agenda. While we may think the interval described here sounds like a very long time, it is actually likely that this is 14 years after Paul's conversion, not after his stay with Peter. Also, we know with the travels of Paul and the other Apostles that some other interactions, whether in person or via letters or messengers was likely to have occurred.
+
+In the church today, too many believers willingly isolate themselves. Some feel they have a calling that must be pursued whether anyone, or any church, is willing to support them in it. The model of the supposed lone-ranger Christian is far too common. But, the Christian life is not meant to be lived in such a way. We are called by Scripture to live in community with one another and to seek wise counsel.
 
 ---
 
 ### Consider Briefly
 
-1. Read ...
+1. Read the following passages
+    * Proverbs 12:15
+    * Proverbs 19:20-21
+    * 1 John 4:1
+    * 2 Timothy 3:16
+    * Hebrews 13:17
 2. What keeps you from seeking Godly counsel sometimes?
 3. Why is it important to seek the input of others?
+4. How else ought we to judge counsel and our own opinions?
 
 ---
+
+As we look at Paul's example here we see him conferring with Godly men, leaders in the church at Jerusalem to confirm that what he is preaching is true. Paul wants to ensure that he is not "running ... in vain." Paul wants to make sure that the Gospel, as he understands it is the same Gospel preached by the church as a whole. He is seeking unity in message and fellowship with other believers.
+
+We have an amazing advantage that Paul and the rest of the church lacked in those formative years. We have the benefit of all of Scripture to inform our opinions and give us a foundation for testing the spirits and examining the teachings of others. We often to not take this advantage as seriously as we should and we suffer as individuals and the church when we do not turn first to Scripture to shape, correct and govern our opinions. But, we also have the advantage of time. The church has experienced a lot over the last 2000 years and we ought to avail ourselves of the wisdom of those faithful believers who have gone before us, in addition to the ones that serve the church today. 
 
 ## Resisting Error
 
@@ -41,7 +53,8 @@
 
 ### Consider Briefly
 
-1. ...
+1. What are some errors that the church struggles with today that we need to be committed to resisting?
+2. How can we, as a local community of believers help each other to resist false teaching?
 
 ---
 
