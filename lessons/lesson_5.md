@@ -25,7 +25,7 @@
 
 1. Read ...
 2. What keeps you from seeking Godly counsel sometimes?
-3. Why is is important to seek the input of others?
+3. Why is it important to seek the input of others?
 
 ---
 
