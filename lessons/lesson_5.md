@@ -1,13 +1,16 @@
 # Galatians 2:1-10
 
-...
+In our last session we looked at the second part of Paul's two-fold defense of his ministry and message. We saw how Paul's meeting with Peter was intended to connect Paul to the work of the other Apostles. Additionally, we saw how Paul's transformation at the power of the Holy Spirit and the revelation of Jesus, Himself, was cause for the churches to glorify God.
+
+This week we want to focus on those things that encourage us to continue abiding and laboring in and for the cause of the Gospel. We continue to see Paul using his own autobiography to teach important truths about not just his ministry, but also about our lives and ministry in Christ.
 
 ---
 
 ### Consider Briefly
 
-1. What things help regulate your Christian life?
-2. Why is it important, as a Christian, to not rely solely on your own opinions and experience? 
+1. What is God doing that we should give glory to Him for, here and around the world, in the church?
+2. What things help regulate your Christian life?
+3. Why is it important, as a Christian, to not rely solely on your own opinions and experience? 
 
 ---
 
@@ -47,7 +50,9 @@ We have an amazing advantage that Paul and the rest of the church lacked in thos
 >
 > (Galatians 2:3-5 ESV)
 
-...
+Paul draws our attention to the way he and his companions resisted false teachers who sought to bind them under rules that were foreign to the Gospel. In this specific instance it is the subject of circumcision that was raised by individuals who Paul refers to as "false brothers." This is an important issue in this context because the false teachers that are troubling the Galatians are likely the same, or very closely linked, to these false teachers in Jerusalem.
+
+Yet, Paul notes the reason that he resisted their false teachings. It was for the sake of the Galatians, as well as numerous other Gentile believers. This reveals to us a sound reason why we should also resist false teachings when they crop up in our day and age. We should do so for the sake of those who may struggle around us, and for those who are still yet to believe the Gospel. 
 
 ---
 
@@ -55,6 +60,7 @@ We have an amazing advantage that Paul and the rest of the church lacked in thos
 
 1. What are some errors that the church struggles with today that we need to be committed to resisting?
 2. How can we, as a local community of believers help each other to resist false teaching?
+3. What value does resisting false teaching provide for us in seeking to share the Gospel with others?
 
 ---
 
