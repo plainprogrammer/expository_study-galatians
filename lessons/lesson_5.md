@@ -98,15 +98,25 @@ In the end both Paul and the other Apostles recognized their respective ministri
 
 ---
 
-...
+Beyond the specific teaching that the Apostles sought to act mercifully towards the poor in their society, the broader truth was get a glimpse of here is that the Christian life is not one of inaction, or simply proclaiming a message. The message of the Gospel is the most important aspect of our ministry in the world. But, we are also called to demonstrate Christ-like mercy to those the world would just as soon forget.
+
+---
+
+### Consider Briefly
+
+1. Read the following passages
+    * Matthew 5:7
+    * James 1:27
+2. How can we demonstrate mercy to those around us in both word and deed?
 
 ---
 
 ## For Next Time
 
 1. Read Galatians 2:11-16
-2. ...
+2. Why is salvation by works so enticing to so many, even within the church?
 
 ---
 
-1. <b id="f1"></b> Timothy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 155. [↩](#a1)
+1. <b id="f1"></b> Tim
+othy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 155. [↩](#a1)
