@@ -19,7 +19,7 @@ Scripture quotations are from the ESV® Bible (The Holy Bible, English Standard 
     2. [Galatians 1:6-9](lessons/lesson_2.md)
     3. [Galatians 1:10-17](lessons/lesson_3.md)
     4. [Galatians 1:18-24](lessons/lesson_4.md)
-    5. Galatians 2:1-10
+    5. [Galatians 2:1-10](lessons/lesson_5.md)
     6. Galatians 2:11-16
     7. Galatians 2:17-21
     8. Galatians 3:1-25
