@@ -1,8 +1,8 @@
 # README
 
-[![Creative Commons License](https://i.creativecommons.org/l/by-sa/4.0/80x15.png)](LICENSE.md)
+[![Creative Commons License](https://i.creativecommons.org/l/by-nc-nd/4.0/80x15.png)](LICENSE.md)
 
-_The Expository Bible Study: Galatians_ is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](LICENSE.md).
+_The Expository Bible Study: Galatians_ is licensed under a [Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License](LICENSE.md).
 
 Scripture is from the ESV® Bible  (The Holy Bible, English Standard Version®), copyright 2001 by Crossway, a publishing ministry of Good News Publishers.  Used by permission.  All rights reserved.
 
