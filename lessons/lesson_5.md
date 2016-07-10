@@ -118,5 +118,4 @@ Beyond the specific teaching that the Apostles sought to act mercifully towards 
 
 ---
 
-1. <b id="f1"></b> Tim
-othy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 155. [↩](#a1)
+1. <b id="f1"></b> Timothy George, _Galatians, vol. 30, The New American Commentary_ (Nashville: Broadman & Holman Publishers, 1994), 155. [↩](#a1)
