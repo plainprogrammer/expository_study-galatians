@@ -18,7 +18,7 @@ Scripture is from the ESV® Bible  (The Holy Bible, English Standard Version®),
     3. [Galatians 1:10-17](lessons/lesson_3.md)
     4. [Galatians 1:18-24](lessons/lesson_4.md)
     5. [Galatians 2:1-10](lessons/lesson_5.md)
-    6. Galatians 2:11-16
+    6. [Galatians 2:11-16](lessons/lesson_6.md)
     7. Galatians 2:17-21
     8. Galatians 3:1-25
     9. Galatians 3:26-4:7
