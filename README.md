@@ -4,9 +4,7 @@
 
 _The Expository Bible Study: Galatians_ is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](LICENSE.md).
 
-Scripture quotations are from the ESV® Bible (The Holy Bible, English Standard Version®), copyright © 2001 by Crossway, a publishing ministry of Good News Publishers. Used by permission. All rights reserved. 
-
-**NOTICE:** We have requested official permission to use the ESV text for our scriptural citations, but have not received definitive permission beyond what is covered in their [general permissions grant](https://www.crossway.org/support/esv-bible-permissions/).
+Scripture is from the ESV® Bible  (The Holy Bible, English Standard Version®), copyright 2001 by Crossway, a publishing ministry of Good News Publishers.  Used by permission.  All rights reserved.
 
 ---
 
