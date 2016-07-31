@@ -56,7 +56,19 @@ When we read that God counted Abraham's belief in His promise to him as righteou
 > 
 > (Galatians 3:7-9 ESV)
 
-...
+---
+
+### Consider Briefly
+
+1. Romans 9:6-8
+2. Who are the true children of Abraham?
+3. How is the promise Paul calls attention to in this passage fulfilled?
+
+---
+
+The very heart of Paul's argument is made here: that only those who have faith are truly Abraham's offspring. This is the explicit proclamation that God has always worked via an economy of grace when it comes to spiritual redemption. Paul notes that this promise that is made in Genesis 15, and reiterated elsewhere is a proclamation of the Gospel.
+
+The fulfillment of this promise is Jesus Christ and the extending of salvation, by grace through faith, to the Gentiles. The world is blessed in and through the life, death, and resurrection of Jesus. A multitude of physical descendants is not the fulfillment of the Abrahamic covenant, the Gospel is. And, the proclamation of the Gospel to the nations is both a fulfillment and ongoing reiteration of this covenant.
 
 ## Cursed by the Law
 
@@ -64,7 +76,29 @@ When we read that God counted Abraham's belief in His promise to him as righteou
 >
 > (Galatians 3:10-12 ESV)
 
-...
+---
+
+### Consider Briefly
+
+1. Read Deuteronomy 27:26-28:2 and Matthew 5:17-20
+2. What is 'The Book of the Law' Paul refers to?
+3. Can the letter and spirit of the Law be kept perfectly?
+
+---
+
+In these verses Paul returns to addressing his opponents by noting that what they teach brings a curse with it. The expectation of God is that obedience to the Law must be perfect in order to be effective. There is no room for imperfection if anyone wants to enter the presence of God based upon their own merit. But, as Paul notes, no one is declared to be justified before God, by the Law. This is because no one can keep the Law perfectly, that is why the sacrificial system was put in place, in the first place.
+
+---
+
+### Consider Briefly
+
+1. Read Leviticus 4:1-2 and Hebrews 9:22
+
+---
+
+Chapter four of Leviticus addresses offerings made for unintentional sins, and it addresses the offerings to be made from the priesthood down to the common person. If salvation could truly be had through obedience to the Law then sacrifice would not truly be necessary, obedience would be all that is required. Yet, the sacrifices were necessary and they were necessary continually. Without blood being shed for sin, there was no means to even maintain an appearance of obedience to the Law.
+
+And, it is this constant need for sacrifice that reveals that the Law can not actually save us. Good works are not enough to justify us before God because our good works don't outweigh or counteract our sin in any way at all. As we already read in Isaiah, our good works are like filthy garments, and we think those will please God? Only faith in what God is able to do pleases Him.
 
 ## Redeemed in Christ
 
@@ -72,4 +106,33 @@ When we read that God counted Abraham's belief in His promise to him as righteou
 >
 > (Galatians 3:13-14 ESV)
 
-...
+---
+
+### Consider Briefly
+
+1. How did Jesus become a curse?
+2. How did Jesus suffering benefit us?
+
+---
+
+This passage makes reference to another passage in Deuteronomy 21:23 regarding the curse that belongs to those who are executed as a public display. Jesus was executed as such a public display, but the curse he bore was not just the curse of shame. He also bore the curse of our sin.
+
+---
+
+### Consider Briefly
+
+1. Read John 3:34-36 and Romans 5:8-11
+
+---
+
+Apart from Christ we must bear God's wrath ourselves, but the shed blood of Christ is able to satisfy the wrath of God, which was poured out on Jesus at the cross. This transaction, whereby Jesus satisfies the curse of sin through His death is the heart of the Gospel, and it goes in concert with the promise of life that is made manifest through the resurrection. We are made Abraham's children by faith, given the Spirit by faith, and ultimately saved because of faith in the finished work in Jesus, alone. Our faith can not rest upon our works, because that subjects us to the Law and the Law is impossible to fulfill perfectly. We need God's grace and that grace is made available to us by faith.
+
+---
+
+## For Next Time
+
+1. Read Galataisn 3:15-4:7
+2. Consider, in light of these verse, why God gave the Law to Israel?
+3. What, if any, place does the Law have in the life of the Church?
+
+---
