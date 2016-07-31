@@ -13,15 +13,15 @@ Scripture is from the ESV® Bible  (The Holy Bible, English Standard Version®),
 * [Series Introduction](series-introduction.md)
 * [License](LICENSE.md)
 * Lessons
-    1. [Introduction & Galatians 1:1-5](lessons/lesson_1.md)
-    2. [Galatians 1:6-9](lessons/lesson_2.md)
-    3. [Galatians 1:10-17](lessons/lesson_3.md)
-    4. [Galatians 1:18-24](lessons/lesson_4.md)
-    5. [Galatians 2:1-10](lessons/lesson_5.md)
-    6. [Galatians 2:11-16](lessons/lesson_6.md)
-    7. Galatians 2:17-21
-    8. Galatians 3:1-25
-    9. Galatians 3:26-4:7
+     1. [Introduction & Galatians 1:1-5](lessons/lesson_1.md)
+     2. [Galatians 1:6-9](lessons/lesson_2.md)
+     3. [Galatians 1:10-17](lessons/lesson_3.md)
+     4. [Galatians 1:18-24](lessons/lesson_4.md)
+     5. [Galatians 2:1-10](lessons/lesson_5.md)
+     6. [Galatians 2:11-16](lessons/lesson_6.md)
+     7. [Galatians 2:17-21](lessons/lesson_7.md)
+     8. [Galatians 3:1-14](lessons/lesson_8.md)
+     9. Galataisn 3:15-4:7
     10. Galatians 4:8-31
     11. Galatians 5:1-15
     12. Galatians 5:16-26
