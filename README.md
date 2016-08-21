@@ -21,11 +21,13 @@ Scripture is from the ESV® Bible  (The Holy Bible, English Standard Version®),
      6. [Galatians 2:11-16](lessons/lesson_6.md)
      7. [Galatians 2:17-21](lessons/lesson_7.md)
      8. [Galatians 3:1-14](lessons/lesson_8.md)
-     9. Galataisn 3:15-4:7
-     10. Galatians 4:8-31
-     11. Galatians 5:1-15
-     12. Galatians 5:16-26
-     13. Galatians 6:1-10
-     14. Galatians 6:11-18
+     9. Galatians 3:15-29
+     10. Galatians 4:1-7 (Review)
+     11. [Galatians 4:8-20](lessons/lesson_11.md)
+     12. Galatians 4:21-31
+     13. Galatians 5:1-15
+     14. Galatians 5:16-26
+     15. Galatians 6:1-10
+     16. Galatians 6:11-18
 * [Leader Resources](leader-resources.md)
 * [Contributors](CONTRIBUTORS.md)
