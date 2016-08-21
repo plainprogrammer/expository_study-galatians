@@ -96,8 +96,8 @@ Finally Paul expresses his confusion at the Galatians, and describes his emotion
 
 ## For Next Time
 
-1. Read Galataisn 4:21-31
-2. Read Hebrews 8:5-7;  
+1. Read Galatians 4:21-31
+2. Read Hebrews 8:5-7; 12:22ff
 3. Consider the allegory that Paul presents in Galatisn in relation to the passage from Hebrews 
 
 ---
