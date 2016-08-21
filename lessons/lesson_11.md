@@ -52,7 +52,18 @@ Paul identifies the observance of the Law in this way as being like the idolatry
 > 
 > (Galatians 4:12-15 ESV)
 
-...
+---
+
+In these verses we get a window into how grace manifested itself in the lives of the Galatians when Paul first preached to them. They supported and blessed Paul because of their understanding of the Gospel he preached to them. This picture of hospitality and even desire to sacrifice for the good of another should be an example to us. If we know Christ, if we know grace, then we should be gracious people, sacrificing like Christ for the good of others. In These verses we get a glimpse of the fruit that grace should produce.
+
+---
+
+### Consider Briefly
+
+1. What opportunities do we often miss to demonstrate the grace that we have come to know in Christ?
+2. How can we be better prepared to be gracious followers of Christ?
+
+---
 
 ## Now Despised
 
@@ -60,21 +71,33 @@ Paul identifies the observance of the Law in this way as being like the idolatry
 >   
 > (Galatians 4:16-20 ESV)
 
-...
+---
+
+### Consider Briefly
+
+1. Read Romans 16:17-8
+2. How can flattery warp our perspectives?
+
+---
+
+Flattery is dangerous for so many reasons, not least of which is that it tempts us to accept an inaccurate perspective of who we are. We often are willing to hear and accept things we know to be false if they are delivered by flattering words. No one likes to recognize their weaknesses and failures, but flattery actively seeks to white wash who we are and invites us to believe lies.
+
+Paul identifies flattery as part of what has drawn the Galatians away from grace. Maybe they were being praised for what they were willing and able to do in following the Law, or maybe the flattery was being told that they had done such good work in believing in Jesus. But, whatever praise was being given, Paul identifies that those who are flattering the Galatians are doing so in order to exclude the Galatians and entreat their own exaltation. The flattery has the express purpose of making the Galatians slaves, which is the point Paul has made repeatedly up to this point.
+
+Finally Paul expresses his confusion at the Galatians, and describes his emotional state in comparison to the pain of childbirth. Hearing of believers departing from the Gospel should not be an easy thing for us. We should not accept apostasy as something that just happens. In many cases it is because a person or group has been enticed by flattery or other forms of deception. This is why it is critical that the church alwasy contend for the truth and seek to shepherd those who are being enticed by false teachers.
 
 ---
 
 ### Consider Briefly
 
-1. ...
-
----
+1. How can we do a better job of guarding those who find false teaching appealing?
 
 ---
 
 ## For Next Time
 
 1. Read Galataisn 4:21-31
-2. ...
+2. Read Hebrews 8:5-7;  
+3. Consider the allegory that Paul presents in Galatisn in relation to the passage from Hebrews 
 
 ---
