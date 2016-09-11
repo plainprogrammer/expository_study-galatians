@@ -18,12 +18,12 @@ Paul returns in the verses we will be studying today to his Abrahamic argument, 
 
 ...
 
-## ...
+## Greater are the Children of Barrenness
 
-> For it is written,
->    "Rejoice, O barren one who does not bear; break forth and cry aloud, you who are not in labor!
->    For the children of the desolate one will be more than those of the one who has a husband.”
-> (Galatians 4:27 ESV)
+> For it is written, "Rejoice, O barren one who does not bear; break forth and cry aloud, you who are not in labor! For the children of the desolate one will be more than those of the one who has a husband.”
+> (Galatians 4:27 ESV; cf. Isaiah 54:1)
+
+...
 
 ## Children of Promise, Not Slavery
 
