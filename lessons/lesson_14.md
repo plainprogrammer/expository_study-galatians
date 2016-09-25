@@ -59,6 +59,17 @@ False teaching hinders obedience to the Gospel by making the Gospel message of l
 > 
 > (Galatians 5:13-15 ESV)
 
+---
+
+### Consider Briefly
+
+1. How are we to use Gospel freedom?
+2. What constrains the bounds of our freedom?
+
+---
+
+The dual temptations of legalism and license are again presented against one another. For those who place their faith and trust in the Gospel, the case against legalism is clear. But, Paul also desires to warn believers against the equally dangerous temptation of license. Believers, are not free to use the freedom that comes through the Gospel to whatever end they decide to. The Gospel is constrained by love, both love for God and love for others.
+
 ...
 
 ---
