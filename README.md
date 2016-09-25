@@ -25,9 +25,10 @@ Scripture is from the ESV® Bible  (The Holy Bible, English Standard Version®),
      10. Galatians 4:1-7 (Review)
      11. [Galatians 4:8-20](lessons/lesson_11.md)
      12. Galatians 4:21-31
-     13. Galatians 5:1-15
-     14. Galatians 5:16-26
-     15. Galatians 6:1-10
-     16. Galatians 6:11-18
+     13. Galatians 5:1-6
+     14. [Galatians 5:7-15](lessons/lesson_14.md)
+     15. Galatians 5:16-26
+     16. Galatians 6:1-10
+     17. Galatians 6:11-18
 * [Leader Resources](leader-resources.md)
 * [Contributors](CONTRIBUTORS.md)
